@@ -1,1 +1,1 @@
-![plan](https://github.com/user-attachments/assets/e1dd057f-f65b-4de6-877a-932568486124)
+![study-plan](https://github.com/user-attachments/assets/25521d8b-b7a8-4a96-9232-d80e1258f0b6)
